@@ -1,1 +1,1 @@
-Para mayor información sobre el proyecto, leer los archivo pdf proyectoFinal_2024PAO2 y Reporte Proyecto ESTD 2P
+Para mayor información sobre el / los proyectos, leer los archivos pdf adjuntados
